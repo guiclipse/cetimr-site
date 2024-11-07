@@ -15,7 +15,7 @@ Grêmio:
 
 Pedro Wilson
 
-Área do Aulo:
+Área do Aluno:
 
 Guilherme Nascimento
 
